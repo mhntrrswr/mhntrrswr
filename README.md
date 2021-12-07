@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mhntrrswr
+- 👋 Hi, I’m Mahanti
 - 👀 I’m interested in Marketing and Business
 - 🌱 I’m currently learning Marketing
 - 💞️ I’m looking to collaborate on your company
